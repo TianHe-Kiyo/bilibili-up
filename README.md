@@ -1,2 +1,7 @@
+<div align="center">
+
 # BiliBili-up
-BiliBili平台注销用户收集库
+
+> 云起兮风生，心向远方兮路未曾至.
+
+</div>

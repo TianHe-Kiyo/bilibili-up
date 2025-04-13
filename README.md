@@ -1,6 +1,6 @@
 <div align="center">
-# BiliBili-up
 
-> 云起兮风生，心向远方兮路未曾至.
-
+  # BiliBili注销用户视频收集库
+  
+> 相逢方一笑,相送还成泣.
 </div>

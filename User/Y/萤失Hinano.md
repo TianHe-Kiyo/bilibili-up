@@ -10,7 +10,7 @@
   - 前往 **[BV1fu4y127DE](https://b23.tv/EaaAV12)**
 + 【言和AI&V5原创曲 feat.乐正绫】差不多得了【藏字馆project】【言&叶生日会单品】
   - 前往 **[BV1TV411T7gL](https://b23.tv/qMCcVc0)**
-+ 【洛天依原创】游行日【收录于琉璃色前奏曲】-哔哩哔哩】
++ 【洛天依原创】游行日【收录于琉璃色前奏曲】
   - 前往 **[BV1hb411Z7oQ](https://b23.tv/iCa6Y2o)**
 + 【2023年新年传词游戏【中文V家词作多人】
   - 前往 **[BV1HD4y1A7Aa](https://b23.tv/V04gB3t)**

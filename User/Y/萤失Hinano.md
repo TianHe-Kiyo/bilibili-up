@@ -47,7 +47,7 @@
 
 ## 直播回放
 + 【直播回放】“心理疾病治疗中你踩过哪些坑？” 2022年11月25日22点场
-  - 前往 **https://www.bilibili.com/video/BV13D4y1v7QP**
+  - 前往 **https://www.bilibili.com/video/BV13D4y1v7QP/?vd_source=796cb8c36f7fcdacf647c42e54a4b2eb**
 + 【直播回放】☆ 兔球心理问答电台 第八期 2022年11月11日22点场
   - 前往 **https://www.bilibili.com/video/BV1Hv4y1m7bN**
 + 【直播回放】☆兔球心理问答电台 第七期 2022年10月28日22点场
